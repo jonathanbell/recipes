@@ -1,2 +1,3 @@
-# recipes
-Recipes for edible food
+# Recipes
+
+I like to eat food.
