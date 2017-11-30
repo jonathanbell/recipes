@@ -13,7 +13,7 @@
 * 8 cups chicken broth
 * 1 1/2 cups skim milk
 * 1/2 teaspoon thyme
-* salt and pepper
+* salt and pepper to taste
 
 ## Method
 
