@@ -10,8 +10,7 @@
 
 ## Method
 
-1. Mix everything together.
-1. Place salad in a microwave safe bowl.
+1. In a microwave safe bowl, mix everything together except the cheese.
 1. Sprinkle cheese on top.
 1. Microwave 30-60 seconds.
 
