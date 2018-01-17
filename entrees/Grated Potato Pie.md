@@ -11,7 +11,7 @@
 * 2 tablespoons milk
 * 1 tablespoon flour
 * pinch of nutmeg
-* 1/4 parmesan cheese, grated
+* 1/4 cup parmesan cheese, grated
 
 ## Method
 
